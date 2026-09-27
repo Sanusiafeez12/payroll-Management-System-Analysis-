@@ -124,13 +124,13 @@ Skills Demonstrated
 
 Payroll Management System Analysis.xlsx
 
-"View / Download Excel Workbook ()
+"View Excel Workbook (https://1drv.ms/x/c/1f6c66d9acbb9ca2/IQAo-p0sl1sHQqGObxGPx3aNAW8lda6UWB2xmg0T1zYALBk?e=Bbhdoj)
 
 📑 Project Presentation
 
 Payroll Management System Analysis Presentation
 
-"View Project Presentation" ()
+"View Project Presentation" (https://1drv.ms/p/c/1f6c66d9acbb9ca2/IQBoDy_j7H00QYEna_pzf5NSAcMPKBF_m-42VLS6umS6bC4?e=MbqreE)
 
 📌 Key Learning Outcomes
 
